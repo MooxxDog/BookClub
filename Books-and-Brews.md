@@ -5,33 +5,50 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-51 Books since inception!  
+57 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Anne of Green Gables by Lucy Maud Montgomery - Friday, May 3, 2024  
+* Anne of Green Gables by Lucy Maud Montgomery - Friday, May 3, 2024 at Twins Game (Target Field) 
 
-#### 2024  
+#### 2025
+* Wandering Stars by Tommy Orange - Friday, March 7, 2025 at Buch Fermentary & Taproom (Chosen by Beth)
+* "LURKER" Happy Hour Drinks & Pizza - Friday, February 7, 2025 at Surly Brewing (Sam's Proposal)
+* Uzumaki by Junji Ito - Friday, January 3, 2025 at Spiral Brewery (Chosen by Leah)
+
+Total 2025: 2 Books, 1 Event
+
+#### 2024
+* Mini-golf and drinks at Can-Can Wonderland, Friday, Dec 6, 2024 (Beth's proposal) 
+* A Psalm for the Wild-built by Becky Chambers - Friday, Nov 1, 2024 at St Paul Brewery (Chosen by Rotem) 
+* Oktoberfest at Pryes Brewery - Friday, October 4, 2024 
+----Swap to "Bimonthly" book schedule----
+* *SPECIAL* Completed book swap - Friday, September 6, 2024 at Sam's new apartment (Sam's Idea)
+* *SPECIAL* - No book. Read your favorite book and bring a copy for book swap - Friday, August 2, 2024 at Raspberry Island (for Barbie Movie in the park) (Beth's Idea)
+* The Very Hungry Catterpillar by Eric Carle - Saturday, July 13, 2024 at Gambit Brewing and Pub Crawl
+* Blindsight by Peter Watts - Friday, June 7, 2024 at Headflyer Brewing (Chosen by Wes)
+* Anne of Green Gables by Lucy Maud Montgomery - Friday, May 3, 2024 at Twins Game (Target Field) (Chosen by Rachel)
 * The Quiet Zone: Unraveling the Mystery of a Town Suspended in Silence by Stephen Kurczy - Friday, April 5, 2024 at Bang Brewing (Chosen by Mickey)  
 * Neuromancer by William Gibson - Friday, March 1, 2024 at Lake Monster Brewing (Chosen by Tom H.)
 * The Colour of Magic by Terry Pratchett - Friday, February 2, 2024 at Wooden Ship Brewing (Chosen by Leah O.)  
 * *Podcast* - "The Kids of Rutherford County" by Serial Production - Friday, January 5, 2024 at Memory Lanes (Chosen by Sam S.)
 
-Total 2024: 3 Books  
+Total 2024: 7 Books, 1 Podcast, 2 Bookswaps, 2 Events
 
 #### 2023  
-* Piranesi by Susanna Clarke - Friday, December 1, 2023 at Under Pressure Brewing (Chosen by Jordan B.)  
+* Piranesi by Susanna Clarke - Friday, December 1, 2023 at Under Pressure Brewing (Chosen by Jordan B.)
+* Get in My Swamp by GM Fairy - Friday, November 3 at Sisyphus Brewing (Chosen by Beth)
 * The Parable of the Sower by Octavia Butler - Friday, October 6, 2023 at Burning Brothers Brewing (Chosen by Wes)  
 * Five-Year Anniversary Event (No Book) - Friday, September 8, 2023 at Bauhaus Brew Labs (Lead by Sam M.)  
 * Haunted by Chuck Palahniuk - Friday, August 4, 2023 at Wandering Leaf (Chosen by Megan S.)
 * Electric Dreams by Philip K. Dick - Friday, July 7, 2023 at Indeed Brewing Co. (Chosen by Rachel C.)
 * Kings of the Wyld by Nicholas Eames - Friday, June 2, 2023 at Sociable Cider Werks (Chosen by Katy P.)  
-* 38 Days: An Extraordinary True Story of Survival at Sea by Jonathan Franklin - Friday, May 5th, 2023 (Chosen by Donny)
+* 438 Days: An Extraordinary True Story of Survival at Sea by Jonathan Franklin - Friday, May 5th, 2023 (Chosen by Donny)
 * Hatchet by Gary Paulsen - Friday, April 7, 2023 at Bad Weather Brewing (Chosen by Leah O.)
 * Horus Rising by Dan Abnett - Friday, March 3, 2023 at Minneapolis Cider Company (Chosen by Charles T.)
 * Homo Deus: A Brief History of Tomorrow by Yuval Noah Harari - February 3, 2023 at Pryes Brewing (Chosen by Mickey L.)  
 * I'm Glad My Mom Died by Jennette McCurdy - Friday, January 6, 2023 at BlackStack Brewing (Chosen by Tom H.)  
 
-Total 2023: 10 Books
+Total 2023: 12 Books
 
 #### 2022   
 * Crying in H Mart by Michelle Zauner - Friday, December 2, 2022 at Falling Knife Brewing Company (Chosen by Beth R.)  
